@@ -1,6 +1,5 @@
 # 色中色直播最新下载地址（2020年12月12日更新）
 ### [http://www.bingonle.com](http://www.bingonle.com/)
-### 主播版下载地址 [http://www.bingonle.com/anchor/](http://www.bingonle.com/anchor/)<br> （观众下载无法使用）
 
 # 直播平台回家页
 本页专人更新，随时获得直播最新下载地址！<br>
